@@ -1,4 +1,3 @@
 ## cutieee!!!~
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="280" alt="image" src="https://github.com/user-attachments/assets/7e5619df-f239-4208-85bd-f0c1e3189f25" />
-
+![image alt]https://i.pinimg.com/originals/88/3f/71/883f7139d51b465666db0d57b231d59a.gif
