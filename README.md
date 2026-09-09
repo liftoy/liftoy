@@ -1,3 +1,4 @@
 ## cutieee!!!~
 
-![image alt]https://i.pinimg.com/originals/88/3f/71/883f7139d51b465666db0d57b231d59a.gif
+![image alt]<img width="500" height="280" alt="image" src="https://github.com/user-attachments/assets/cccb3ea7-0d1e-4d6c-b5b2-be5516df70e7" />
+
