@@ -2,4 +2,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ<img width="500" height="280" alt="image" src="https://github.com/user-attachments/assets/6486a3b7-8fe1-481d-881c-be9e6eb812e3" />
+ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤ<img width="540" height="400" alt="image" src="https://github.com/user-attachments/assets/8b2de2b1-ad89-4805-9e13-a7ebbbc91e13" />
