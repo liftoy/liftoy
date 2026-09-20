@@ -1,3 +1,5 @@
+⠀![image alt](https://komarev.com/ghpvc/?liftoy&style=plastic&color=8B0000&label)
+
 ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image alt](https://github.com/teacuplin/teacuplin/raw/main/cuet.gif)![image alt](https://github.com/teacuplin/teacuplin/raw/main/etcu.gif)
     ㅤㅤ 
     
