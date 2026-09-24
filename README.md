@@ -1,6 +1,6 @@
 ⠀![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=362132&label=⸝⸝)
 
-⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
+⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀![image alt](https://i.pinimg.com/originals/53/8d/88/538d88d2332c4b18566808d5e3224cdc.gif) ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
     ㅤㅤ 
     
     
