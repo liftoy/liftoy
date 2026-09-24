@@ -1,6 +1,6 @@
 ⠀![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=ffbdda&label=⸝⸝)
 
-⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image alt](https://github.com/teacuplin/teacuplin/raw/main/cuet.gif)![image alt](https://github.com/teacuplin/teacuplin/raw/main/etcu.gif)
+⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![image alt](https://i.pinimg.com/originals/d2/e3/f3/d2e3f3be4087072eb36f6678c83db41a.gif)
     ㅤㅤ 
     
     
