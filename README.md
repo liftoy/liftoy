@@ -3,10 +3,10 @@
 ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
     ㅤㅤ<p align="center">
   <a href="https://www.instagram.com/hongahy/">
-    <img src="https://img.shields.io/badge/INS-e63946?style=for-the-badge&labelColor=e63946&color=e63946" alt="IG">
+    <img src="https://img.shields.io/badge/IG-e63946?style=for-the-badge&labelColor=ffffff&color=ffffff" alt="IG">
   </a>
   <a href="https://www.tiktok.com/@__.8thg6">
-    <img src="https://img.shields.io/badge/DIS-ffffff?style=for-the-badge&labelColor=ffffff&color=ffffff&logoColor=e63946" alt="TIK">
+    <img src="https://img.shields.io/badge/TIK-ffffff?style=for-the-badge&labelColor=362132&color=362132&logoColor=362132" alt="TIK">
   </a>
 </p>
  
