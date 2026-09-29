@@ -1,5 +1,6 @@
 ⠀![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=362132&label=⸝⸝)
- ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
+ ⠀ ⠀ ⠀
+ ⠀ ⠀⠀ ⠀  ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
     ㅤㅤ<p align="center">
   <a href="https://www.instagram.com/hongahy/">
     <img src="https://img.shields.io/badge/IG-e63946?style=for-the-badge&labelColor=ffffff&color=ffffff" alt="IG">
