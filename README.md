@@ -14,7 +14,7 @@
  
     
     
-⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ㅤ![image alt](https://i.pinimg.com/originals/7f/69/41/7f6941987d87fb21a72cfcdcb0620257.gif)
+⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ㅤ![image alt](https://i.pinimg.com/736x/79/87/e8/7987e8264b351cbe2ec0c838a742d3ad.jpg)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ______________ㅤㅤ⠀![image alt](https://i.pinimg.com/originals/1b/05/fa/1b05fa497e7710457fd6bb2fd74f9782.gif)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
