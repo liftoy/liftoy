@@ -1,6 +1,8 @@
 ⠀![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=362132&label=⸝⸝)
  ⠀ ⠀ ⠀
- ⠀ ⠀⠀ ⠀  ⠀ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&pause=1000&color=522B38&center=true&width=435&lines=sasuke+uchiha;%E0%AB%AE+%E1%B4%97%CD%88+.+%E1%B4%97%CD%88+%E1%83%90)](https://git.io/typing-svg)
+ ⠀ ⠀⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀
+ 
+ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&pause=1000&color=522B38&center=true&width=435&lines=sasuke+uchiha;%E0%AB%AE+%E1%B4%97%CD%88+.+%E1%B4%97%CD%88+%E1%83%90)](https://git.io/typing-svg)
  
  
  
