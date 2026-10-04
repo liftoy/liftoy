@@ -1,4 +1,4 @@
-   .⠀![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=362132&label=⸝⸝)
+![image alt](https://komarev.com/ghpvc/?username=liftoy&style=plastic&color=362132&label=⸝⸝)
  ⠀ ⠀ ⠀
  
  
